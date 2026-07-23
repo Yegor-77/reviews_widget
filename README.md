@@ -1,0 +1,1 @@
+https://yegor-77.github.io/reviews_widget//
